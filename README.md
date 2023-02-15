@@ -4,7 +4,7 @@
 
 ### Author Links
 
-👋 Hello, I'm Zuhayr the Noobie and learner driver of custom, survival & cheat modes. My other names are Qaeed & Aslam
+👋 Im a Noob
 
 📚 [My Courses](https://courses.davegray.codes/)
 
