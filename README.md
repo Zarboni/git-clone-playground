@@ -4,7 +4,7 @@
 
 ### Author Links
 
-👋 Hello, I'm Zarboni the Noobie.
+👋 Hello, I'm Zuhayr the Noobie and learner driver of custom modes.
 
 📚 [My Courses](https://courses.davegray.codes/)
 
